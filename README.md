@@ -1,5 +1,4 @@
-I Hacked:"https://laylo.com/".
-
+I Hacked:"https://laylo.com/". This is where I'm hosting the code for it. I love you stranger <3
 <!--
 **Jolieixic/Jolieixic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
