@@ -1,4 +1,4 @@
-I Hacked:"https://laylo.com/". This is where I'm hosting the code for it. I love you stranger <3
+I Hacked:"https://laylo.com/". Visit:"https://jolieixic.github.io/Jolieixic/". This is where I'm hosting the code for it. I love you stranger <3
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
